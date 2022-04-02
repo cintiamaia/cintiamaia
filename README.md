@@ -7,3 +7,4 @@
 - 😄 Pronomes: ela/dela
 - ⚡ Sou de São Paulo - SP
 
+## cintiamrs12@gmail.com
